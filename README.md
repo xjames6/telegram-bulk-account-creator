@@ -6,7 +6,7 @@ Contact Only for Serious Business, clowns Stay Away
 
 - Telegarm Username : @HamzaXpro
 - WhatsApp Contact : +919844731512
-- [![Explained in Details](https://img.shields.io/badge/my_portfolio-000?style=for-the-badge&logo=ko-fi&logoColor=white)](https://www.cryptoxpromoter.com/bulk-telegram-account-creator-software/)
+- [Explained in Details](https://img.shields.io/badge/my_portfolio-000?style=for-the-badge&logo=ko-fi&logoColor=white)](https://www.cryptoxpromoter.com/bulk-telegram-account-creator-software/)
 
 
 ![Logo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiPNdfCEIW16pi1gtuUJ-VokNfMaiz5LgMsWyn84V4lJYmrbv_zhCtcjsh1mNoJzK3RAB8-aOZCGJYi3pk4sUplu8Xd6Dn7FGlf6tEbqX_u4-APdTu0Nm-h2R5kp-q8hihtDaGUTDNkhy_sf89o5sUezPi6vCI2G7Nql9AFoDkf9sBHykgFE3BtTPLEjA/s421/flashmakerv1.2.jpg)
